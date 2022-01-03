@@ -57,4 +57,4 @@ Coordination of the work of the department.
 
 ## Skills
 ***
-
+* Languages: English-Beginner
