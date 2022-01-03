@@ -5,8 +5,11 @@
 ## CONTACT 
 ***
 > **E-MAIL:** _kd.suglob@gmail.com_
+
 > **PHONE:** _375-29-3238886_
+
 > **DISCORD:** _KonstantinSuglob(@KonstantinSGL)_
+
 > **lOCATION:** _Belarus, Minsk_
 
 ## About Me
