@@ -46,13 +46,11 @@ Planning and protecting the budget of the department.
 Coordination of the work of the department.
 
 #### April 2015 - May 2018
-* GROUP OF COMPANIES TREND
-    + Head of Supply and Sales Department
-
->New production launch
+* __GROUP OF COMPANIES TREND__, _Head of Supply and Sales Department_
+    >New production launch
 
 #### June 2018 - June 2020
-* OOO TRIOVIST, Supplier relations manager
+* __OOO TRIOVIST__, _Supplier relations manager_
     >launching a new project
 
 ## Skills
