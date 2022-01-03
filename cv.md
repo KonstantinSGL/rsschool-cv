@@ -1,6 +1,7 @@
 # Konstantin Suglob
 ***
  ![my_photo](https://scontent-waw1-1.xx.fbcdn.net/v/t39.30808-6/241337115_4837272762967076_2973189401475400146_n.jpg?_nc_cat=107&ccb=1-5&_nc_sid=09cbfe&_nc_ohc=LkmRGEwqiLUAX-Wgrtv&_nc_ht=scontent-waw1-1.xx&oh=00_AT-s_VRnzn7rF44aqtT2IRR6U1yS9q10uKZjHI_hhdF-jA&oe=61D6F596)
+
 ## CONTACT 
 ***
 > **E-MAIL:** _kd.suglob@gmail.com_
